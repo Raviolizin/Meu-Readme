@@ -4,4 +4,4 @@
 -Eu tenho a ambição de me profissionalizar um pouco em conhecimento de I.A e após ficar com uma renda estável, me profissionalizar em outra área, mas meu primeior plano ainda é me aprofundar no conhecimento de I.A ⚙
 -Sendo meu sonho trabalhar com desenvolvimento e aprimoramento de I.A ⭐
 
-  Caso queira uma recomendação de um jogo que é bem simples e leve aqui uma recomendação: skribbl.io 🎮 (apenas copie e cole na sua barra de pesquisa) :P
+  Caso queira uma recomendação de um jogo que é bem simples e leve aqui uma recomendação: skribbl.io 🎮 (apenas copie e cole na sua barra de pesquisa e divirta-se) :P
